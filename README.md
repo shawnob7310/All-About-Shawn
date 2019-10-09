@@ -22,3 +22,6 @@ My family isn't very big. It's just my mom, dad, brother and I. Most of the time
 
 
 # Favorite Stores 
+1. 
+2. 
+3.
