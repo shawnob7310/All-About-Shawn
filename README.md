@@ -12,7 +12,10 @@ My family isn't very big. It's just my mom, dad, brother and I. Most of the time
 
 
 # Skills
-* 
+* Making mac and cheese
+* Taking photos
+* Juggling
+* Shopping
 
 
 
