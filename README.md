@@ -22,6 +22,6 @@ My family isn't very big. It's just my mom, dad, brother and I. Most of the time
 
 
 # Favorite Stores 
-1. 
-2. 
-3.
+1. [Nike](https://www.nike.com/)
+2. [Adidas](https://www.adidas.com/us?cm_mmc=AdieSEM_Google-_-adidas-Trademark-General-B-Exact-_-Trademark-X-X-BTS_Student-_-43700046586448361&cm_mmca1=US&cm_mmca2=&ds_agid=58700005272118433&gclid=Cj0KCQjwrfvsBRD7ARIsAKuDvMP-OGrvzcR3BjMu9az3onlOm0Hx0yz7DPyR6XFUg-kE0j1JkOA41LIaAggGEALw_wcB&gclsrc=aw.ds)
+3. [FootLocker](https://www.footlocker.com/category/sport/casual/mens/shoes.html?currentPage=1)
