@@ -12,12 +12,15 @@ My family isn't very big. It's just my mom, dad, brother and I. Most of the time
 
 
 # Skills
-*
+* 
 
 
 
 # Hobbies
-* 
+* Football
+* Weight lifting/ working out
+* Lacrosse 
+![picture of hobbies](https://www.uslaxmagazine.com/sites/default/files/images/articles/chris-hogan-lacrosse-football.jpg)
 
 
 
